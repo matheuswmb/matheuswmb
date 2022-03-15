@@ -10,5 +10,5 @@ I did graduate at an English Course ( Wise Up!) on my early days. So I try my be
 Thanks for reading till here. If you're looking for a Junior at Data Analysis, feel free to contact me.
 
 Contacts:
-* e-mail: matheuswmb03@gmail.com
-* cellphone: +55 (021) 97179-0037
+* matheuswmb03@gmail.com
+* +55 (021) 97179-0037
