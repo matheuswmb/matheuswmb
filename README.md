@@ -1,6 +1,6 @@
 Hi, I'm Matheus Willian. 
 
-I like to read a lot of mangas, getting into novels now. I also love to cook, watch some series/animes with my girlfriend.
+I like to read a lot of mangas, getting into novels now. I also love to cook, watch some series/animes with my girlfriend, and play videogames.
 
 I recently graduated in Computer Science at UFFRJ ( Universidade Federal Rural do Rio de Janeiro ).
 
